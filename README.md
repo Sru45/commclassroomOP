@@ -1,3 +1,3 @@
 # commclassroomOP
 hellow this is srushti and this community is amazing
-Kunal Kushwaha learing github amazing..
+,learning github from the OG kunal kushwaha is amazing ....
